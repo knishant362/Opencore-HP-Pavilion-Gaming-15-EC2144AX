@@ -1,0 +1,1 @@
+# Opencore-HP-Pavilion-Gaming-15-EC2144AX
